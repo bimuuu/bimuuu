@@ -1,5 +1,5 @@
-## Hi there 👋
-I'm bimuuu.(23 yo)📸
+## Hi , I'm bimuuu 👋
+Constant learner who finds joy in the challenge of code. The deeper I dive into new languages, the more exciting it becomes.
 
 🧠 I'm currently learning:
 <br><br>
